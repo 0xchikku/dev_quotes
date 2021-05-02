@@ -1,0 +1,3 @@
+Most software today is very much like an Egyptian pyramid with millions of bricks piled on top of each other, with no structural integrity, but just done by brute force and thousands of slaves.
+
+By the time I got to school, I had already read a couple hundred books. I knew in the first grade that they were lying to me because I had already been exposed to other points of view. School is basically about one point of view — the one the teacher has or the textbooks have.
