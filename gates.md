@@ -1,1 +1,1 @@
-life is not fair!
+life is unfair!
