@@ -15,3 +15,5 @@ Developers quotes
 2. Martin
 3. Alan
 4. Larry
+5. Bill Gates
+6. Steve Jobs
